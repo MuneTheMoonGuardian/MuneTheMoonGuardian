@@ -3,7 +3,7 @@
 <a>
 <p align="center">
   <p align="center">
-    🎵 ㅤㅤㅤ<a href="https://munethemoonguardian.straw.page">STRAWPAGE !</a> ㅤ⠀🎧 ㅤ <a href="https://munemoonguardian.atabook.org/">S-ATA !  </a> 
+    🎵  ㅤㅤ<a href="https://munethemoonguardian.straw.page">STRAWPAGE !</a> ㅤ⠀🎧 ㅤ <a href="https://munemoonguardian.atabook.org/">S-ATA !  </a> 
 
 </p>
 <p align="center">
