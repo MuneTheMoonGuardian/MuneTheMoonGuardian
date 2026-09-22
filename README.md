@@ -3,11 +3,12 @@
 <a>
 <p align="center">
   <p align="center">
-    🪻  ㅤㅤ<a href="https://munethemoonguardian.straw.page">STRAWPAGE !</a> ㅤ⠀🎭 ㅤ <a href="https://munemoonguardian.atabook.org/">S-ATA !  </a> 
+    🌀  ㅤㅤ<a href="https://munethemoonguardian.straw.page">mi strawpage </a> ㅤ⠀🕯️ ㅤ <a href="https://munemoonguardian.atabook.org/">sign my ATABOOK plez :P  </a> 
 
 </p>
 <p align="center">
-  <img width="200" height="200" alt="1000045602" src="https://github.com/user-attachments/assets/80089515-c1b0-4398-8efd-43640968f11b" />
+  <img width="200" height="200" alt="1000047315" src="https://github.com/user-attachments/assets/a1282e18-05e3-4358-a003-105b5a48055b" />
+
 
 
 
